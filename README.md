@@ -43,4 +43,12 @@ Jashan Verma (B.Tech Electrical)
 
 ##### Day 4 (6 August, 2025) 
 
+##### Mr. Manpreet Singh:
+###### Sir was a very great and honoured person as he achieved national gold medal in gym. He had a very good lecture about fitness and he cleared our many doubts. He also talked on sensitive topics like wine and steroids which are highly dangerous for our health and requested the youngsters to stay away from that. 
+
+##### Brigadier P.S Cheema:
+###### Sir was one of the most respected chief guests of the program as their position was very sacred and their thoughts were pure. He gave us brief description about our holistic development along with poetries. He shared their experience in army and motivated us about NCC. 
+
+##### Day 5 (7 August, 2025) 
+
 #####
