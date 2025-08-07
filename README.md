@@ -35,4 +35,12 @@ Jashan Verma (B.Tech Electrical)
 
 ##### Day 3 (5 August, 2025) 
 
+##### Mr. Gautam Murria:
+###### Sir gave a brief but meaningful lecture about motorsports. He shared his journey in motorsports, inspiring our mind with passion and grit. He asked some questions during session which were quiet interesting and relatable. 
+
+##### Mrs. Shaffy Makkar:
+###### Mam started their lecture by interactions with us and telling us about the super food Milets. Her knowledge about milets was outstanding. She told us about their types, benefits, production in field,etc. 
+
+##### Day 4 (6 August, 2025) 
+
 #####
