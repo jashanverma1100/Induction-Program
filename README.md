@@ -53,3 +53,5 @@ Jashan Verma (B.Tech Electrical)
 
 ##### Dr. Lakhvir Singh Khana 
 ###### Sir is the incharge of Centre of Multifaceted Learning and has a very good knowledge of all branches and guide the students very well. He has good thoughts and impressive knowledge about future scope in B.Tech.
+##### Dr. Jasvir Singh Garewal
+###### Sir started his lecture with a very good shabad kirtan performance by NSS club. Then they acknowledged us about various camps and activities done by NSS camp. They enjoyed students with games also. Their lecture was quite good and enthusiastic. Their lecture was great and so polite. 
