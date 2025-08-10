@@ -51,4 +51,5 @@ Jashan Verma (B.Tech Electrical)
 
 ##### Day 5 (7 August, 2025) 
 
-#####
+##### Dr. Lakhvir Singh Khana 
+###### Sir is the incharge of Centre of Multifaceted Learning and has a very good knowledge of all branches and guide the students very well. He has good thoughts and impressive knowledge about future scope in B.Tech.
